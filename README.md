@@ -1,2 +1,2 @@
 # J0VanoV1C
-Just Made Xenon bot 2.0
+https://cdn.discordapp.com/attachments/701412612843503706/701412910693482578/xenon.jpg
